@@ -1,1 +1,1 @@
-### Full Stack Osa 1
+### Full Stack Osa 1 Kurssitiedot
